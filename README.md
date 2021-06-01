@@ -1,16 +1,31 @@
-### Hi there 👋
+### th3f0x666🇧🇷
+![crown](https://github.githubassets.com/images/icons/emoji/unicode/1f451.png)  |Bem vindo ao meu perfil Se diverta-se com os meus programas!
 
-<!--
-**th3f0x666/th3f0x666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- ![deciduous_tree](https://github.githubassets.com/images/icons/emoji/unicode/1f333.png) Eu tenho 12 anos. - ![file_folder](https://github.githubassets.com/images/icons/emoji/unicode/1f4c1.png) Procuro novas amizades. Projetos focados no discord.py
 
-Here are some ideas to get you started:
+![speech_balloon](https://github.githubassets.com/images/icons/emoji/unicode/1f4ac.png) | Você poderá me chamar no discord também.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 📋 Discord: yTheFoxツ#1685
++  Não tenha medo de me chamar, estarei disposto a conversar com você.
+
+
+
+### Outros
+
+• Estou em algumas familias dentro do discord.
+
+! 🥼 Neles estou :
+
+- TKF
+
+
+
+### 🌏''Quanto Mais eu sei Mais eu sou''⭐
+
+-[](https://emojiterra.com/pt/pirulito/)
+
+- 🍭Moro no Brasil[
+ ](https://emojiterra.com/pt/pc/)- 💻Sou mais focado em python[
+
+
+ ](https://emojiterra.com/pt/) - 🐢Bem vindo ao meu perfil!
