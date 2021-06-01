@@ -25,7 +25,7 @@
 -[](https://emojiterra.com/pt/pirulito/)
 
 - 🍭Moro no Brasil[
- ](https://emojiterra.com/pt/pc/)- 💻Sou mais focado em python[
 
+- 💻Sou mais focado em python[
 
- ](https://emojiterra.com/pt/) - 🐢Bem vindo ao meu perfil!
+- 🐢Bem vindo ao meu perfil!
