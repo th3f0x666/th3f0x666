@@ -1,9 +1,9 @@
 ### th3f0x666🇧🇷
 👑 |Bem vindo ao meu perfil Se diverta-se com os meus programas!
 
-- ![deciduous_tree](https://github.githubassets.com/images/icons/emoji/unicode/1f333.png) Eu tenho 12 anos. - ! 📁Procuro novas amizades. Projetos focados no discord.py
+- ! 🌴Eu tenho 12 anos. - ! 📁Procuro novas amizades. Projetos focados no discord.py
 
-![speech_balloon](https://github.githubassets.com/images/icons/emoji/unicode/1f4ac.png) | Você poderá me chamar no discord também.
+ 💬 | Você poderá me chamar no discord também.
 
 - 📋 Discord: yTheFoxツ#1685
 +  Não tenha medo de me chamar, estarei disposto a conversar com você.
