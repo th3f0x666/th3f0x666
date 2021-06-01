@@ -1,7 +1,7 @@
 ### th3f0x666🇧🇷
-![crown](https://github.githubassets.com/images/icons/emoji/unicode/1f451.png)  |Bem vindo ao meu perfil Se diverta-se com os meus programas!
+👑 |Bem vindo ao meu perfil Se diverta-se com os meus programas!
 
-- ![deciduous_tree](https://github.githubassets.com/images/icons/emoji/unicode/1f333.png) Eu tenho 12 anos. - ![file_folder](https://github.githubassets.com/images/icons/emoji/unicode/1f4c1.png) Procuro novas amizades. Projetos focados no discord.py
+- ![deciduous_tree](https://github.githubassets.com/images/icons/emoji/unicode/1f333.png) Eu tenho 12 anos. - ! 📁Procuro novas amizades. Projetos focados no discord.py
 
 ![speech_balloon](https://github.githubassets.com/images/icons/emoji/unicode/1f4ac.png) | Você poderá me chamar no discord também.
 
